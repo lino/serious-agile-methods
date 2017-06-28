@@ -1,6 +1,6 @@
 # Pharmacist
 
-Pharmacist is an agile methode derived from Fear and Loathing in your meeting but adapted for the boring clients with a more
+Pharmacist is an agile method derived from Fear and Loathing in your meeting but adapted for the boring clients with a more
 compliance oriented approach. Instead of illegal drugs only FDA approved drugs are abused.
 
 ## Exemplary delivery
