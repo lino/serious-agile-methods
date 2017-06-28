@@ -8,7 +8,7 @@ it's slavery - not child labour. That would be disgusting.
 
 ## Exemplary delivery
 1. Announce company family day
-2. Invite children to the special children zone
+2. Invite children to the special children zone (no adults allowed except for <s>management</s> "teachers"
 3. Let them do all the work
 4. Give them some candy as reward
 5. Sell some of the children to belgium to refinance your effort
