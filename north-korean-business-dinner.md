@@ -11,7 +11,7 @@ unless you want to reduce the headcount of the coached team to zero.
 - Dishes
 - No cook
 - No food
-- Firearms
+- Firearms (Recommended: Anti Aircraft Artillery)
 
 ## Exemplary delivery
 The business consultant invites the clueless and gullible team to a north korean business dinner in a room with lockable doors
