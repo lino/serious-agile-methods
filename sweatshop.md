@@ -4,7 +4,7 @@ Sweatshop is an agile method where you outsource all your work to children.
 I smell regulatory trouble, but let me tell you how to avoid this.
 Your company may have a policy against child labour but I bet four children 
 that they don't have a policy against slavery. And if you don't pay the kids, 
-it's not child labour but slavery.
+it's slavery - not child labour. That would be disgusting.
 
 ## Exemplary delivery
 1. Announce company family day
