@@ -18,5 +18,4 @@ The business consultant invites the clueless and gullible team to a north korean
 and / or windows. The room is locked. An announcement is made that dinner is about to be served and if timeboxing is employed
 how long this meeting will take. Of course dinner will never be served, as no food is the traditional local delicacy of North Korea.
 Any participant trying to disrupt the agile process of the north korean business dinner will be shot with the firearms, if
-the consultant doesn't want to do actual work for his money he can outsource the killing process to an anonymous henchman provided
-by one of the usual human resource staffers (Senior Lead Delivery Manager)
+the consultants don't want to do actual work for their money they can outsource the killing process to an anonymous henchman provided by one of the usual human resource staffers (Senior Lead Delivery Manager)
