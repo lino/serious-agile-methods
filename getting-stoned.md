@@ -1,6 +1,6 @@
 # Getting stoned
 
-Getting stoned is a quick win agile method for rapid outplacement.
+Getting stoned is a quick win agile method for rapid outplacement. It is important to note that execution of this method is not islamophobic but rather employing the crazyness of religious madmen who just happen to be raised in an islamic country. Religious hate is not ok, unless you're a consultant and don't know the meaning of honor, decency, morale or rules.
 
 ## Required material
 - Credit card
